@@ -1,0 +1,5 @@
+La electricidad es una fuente de energía imprescindible. En cualquier hogar existen todo tipo de aparatos y electrodomésticos que funcionan con corriente eléctrica, además del sistema de iluminación.
+
+En la industria, casi la mitad de la energía que se consume es eléctrica. La electricidad se utiliza tanto como fuente impulsora de los motores eléctricos de las máquinas y aparatos de cada sector, como para calentar los contenidos de tanques, depósitos y calderas. Al igual que en el sector doméstico, la electricidad también es la principal fuente de iluminación, y permite obtener calor y frío con equipos de climatización.
+
+En el ámbito del transporte, el tranvía, metro o tren son los medios de transporte eléctrico por excelencia. Actualmente se están diseñando vehículos eléctricos dirigidos principalmente a usos urbanos, así como vehículos denominados "híbridos" en los que el motor eléctrico se combina con un motor de explosión, de manera que disfruta de las ventajas de ambas fuentes de energía. Con un simple enchufe de corriente eléctrica puede recargarse la batería.
